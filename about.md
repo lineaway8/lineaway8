@@ -6,3 +6,5 @@
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: yt at https://www.youtube.com/channel/lineaway8
 so much for using presets...
+
+alright, i learned scratch when i was young and still know a lot of things about it.
